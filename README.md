@@ -29,3 +29,10 @@ Omagari Hanabi(Akita)<br>
 Sendai Tanabata festival(Miyazaki)<br>
 Gion Matsuri(Kyoto)<br>
 Sapporo Snow Festival(Hokkaido)<br>
+清正公二十三夜祭歩行者天国」<br>
+Sapporo Snow Festival(Hokkaido)<br>
+Akita Kanto Festival (Akita) <br>
+Tokae(Nara)<br>
+Hikari no Kyouen - Festival of the lights(Osaka)<br>
+Iiyama Lantern Festival(Nagano)<br>
+Toukae (Nara)<br>
